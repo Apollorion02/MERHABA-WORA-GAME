@@ -1,0 +1,2 @@
+# MERHABA-WORA-GAME
+EĞİTİM1
